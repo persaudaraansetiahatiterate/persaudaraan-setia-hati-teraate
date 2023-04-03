@@ -1,2 +1,3 @@
 # persaudaraan-setia-hati-teraate
 Persaudaraan Setia Hati Terate adalah sebuah Organisasi Bela Diri Pencak Siat Tertua di Negara Indonesia yang Kantor Seketarian utamanya berada di Kota Madiun.
+Persaudara Setia Hati Terate organization, commonly called SH Terate, PSHT, or PSHTERATE, is an organization known as perguruan Beli diri pencak silat Persaudara Setia Hati Terate. The organization was founded in 1922 by a pioneer independence figure named Ki Hadjar Hardjo Oetomo. Now, the headquarters of this organization is on Merak Street no. 10, South Nambangan, Manguharjo District, Madiun City, East Java 63128. https://www.pshterate.com
